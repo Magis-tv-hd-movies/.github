@@ -9,6 +9,8 @@
 
 **Magis TV** es una plataforma de juego que combina acción, estrategia y fantasía en una experiencia envolvente. Juegas como un mago novato que debe abrirse camino a través de diferentes reinos, resolver enigmas y desbloquear su verdadero poder interior.
 
+##[Descargar Gratis - Magis TV](https://shorturl.at/ebHqN)
+![Screenshot](https://media.todojujuy.com/p/b61cdc674107ddf9751c776721f5cbad/adjuntos/227/imagenes/003/377/0003377127/1200x675/smart/magis-tv-tiene-presencia-fuerte-todos-los-paises-latinoamericay-estados-unidos-inclusive.jpg)
 ---
 
 ## 🕹️ Sobre la Jugabilidad
